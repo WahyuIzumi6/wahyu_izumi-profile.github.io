@@ -1,1 +1,1 @@
-# wahyu_izumi.github.io
+# wahyu_izumi-profile.github.io
